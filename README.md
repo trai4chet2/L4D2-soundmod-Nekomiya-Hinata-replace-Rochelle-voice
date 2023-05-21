@@ -1,1 +1,1 @@
-# L4D2 soundmod Nekomiya Hinata replace Rochelle voice
+# L4D2 Nekomiya Hinata replace Rochelle voice
